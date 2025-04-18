@@ -1,1 +1,1 @@
-# Challenge 6
+# How to Become a Dancer as a Journalist
